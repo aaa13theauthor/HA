@@ -80,3 +80,4 @@ when there hope is misaligned with their soul due to tower dujeva's hue culture
       note: those with a-fantasia will physically be brought into the dream world, death in dreams results in waking up however, if the subject find themselves in a nightmare death results in death
 
 # lore
+
