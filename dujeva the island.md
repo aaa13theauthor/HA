@@ -3,7 +3,7 @@
 ##### overview 
   a strange girl who watches the world around finds her imgaination and perspective create reality itself
 upon her understanding of this her body is destoryed by [umi the tyrannt]. rather then dying the girl binds her soul 
-with the land which birthed her thus making her like umi, quasi-immortal. her ablities matured in this state that splits 
+with the land which birthed her thus making her like umi, an quasi-immortal or bound celestial. her ablities matured in this state that splits 
 the world into many differ layers, some of those layers are explained by the 19 parallels, the others will be detailed in
 this document.
 
@@ -22,8 +22,19 @@ this document.
       the body of the repressed
       dujeva the island (stylized m-j from those not influence by doas, listening to here whispers, *echoes*) and aⓐⒶ13 
       have such a tumulutous relationship is based on m-j's assertions that aⓐⒶ13 by writing a world where her body is destoryed
-      in an off screen event that is only whispered, where
+      in an off screen event that is only whispered, where well fuck ok.
 
+      who is dujeva: another extension of the sub-textual aspects of my aesthetics self
+
+      dujeva m-j flowers : myself (the real human typing this)
+
+      m-j : the being whos perspective makes up HA//ASS  the medium
+      
+      dujeva flowers : the character after the deaths of aaa13 and their artifacts
+
+      aⓐⒶ13 : a child in pain turned into an imaginator at the behest of the consul (the censor bar)
+
+      blck : a character made by aⓐⒶ13 to create
 # geology, ecology, and the supernatural
 
 ##### the desert
@@ -36,8 +47,10 @@ down the path of exploitation and destruction.
 each tower in knife represents a different aspect of the self one loses
 when there hope is misaligned with their soul due to tower dujeva's hue culture 
 
-##### 
-
+##### (umi's brother)'s peak
+      an active volcano used by the consul to fuel the academy
+##### the forgotten forests
+      
 ##### the 19 parallels
       1 - Infinite scale | as you know zooming in on factual videos
       yields more complex structures so does the effect weigh on a human's all along the edges of the island 
