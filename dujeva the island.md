@@ -1,4 +1,4 @@
-# dujeva the island
+  # dujeva the island
 
 ##### overview 
   a strange girl who watches the world around finds her imgaination and perspective create reality itself
@@ -19,7 +19,7 @@ this document.
       how cnvs, clara, kifo and sen play into this dynamic but i will clarify how they relate to the body which aⓐⒶ13 wrongly has 
       taken from dujeva. 
       
-      the body of the repressed
+      ### the body of the repressed
       dujeva the island (stylized m-j from those not influence by doas, listening to here whispers, *echoes*) and aⓐⒶ13 
       have such a tumulutous relationship is based on m-j's assertions that aⓐⒶ13 by writing a world where her body is destoryed
       in an off screen event that is only whispered, where well fuck ok.
@@ -35,17 +35,30 @@ this document.
       aⓐⒶ13 : a child in pain turned into an imaginator at the behest of the consul (the censor bar)
 
       blck : a character made by aⓐⒶ13 to create
-# geology, ecology, and the supernatural
+
+### appearences
+          dujeva flowers: upon taking her eyes, and obtaining the body of aaa13 (a manticore designed for misuse which dujeva find irony in, aaa13 thinks they   truly are the maker of this world)
+    
+    appearance: dujeva has 3 forms in her materialization process
+    1 - hallucination
+    a static image with black holes where the eyes should be, in her afro a feint firing of neurons can be seen to look like dying stars, and yet she smiles
+    
+    2 - the body without eyes
+    the fuzzy image clears up with the body but throughout the process of finding her eyes (which still mirror the black holes within dream bound hallucinations      of her last form) she is trying to find a stable form of nutrients, her hair now a white afro, seems dead indeed, as she grows healthier her hair will gain       it's black color
+    
+    3 - metastable (edited)
+
+    # geology, ecology, and the supernatural
 
 ##### the desert
-  as a result of project knife's rampent industrialization is the desaturation of the lands hues, leaving all that is connected
-down the path of exploitation and destruction.
+      as a result of project knife's rampent industrialization is the desaturation of the lands hues, leaving all that is connected
+      down the path of exploitation and destruction.
 
-   *i never imagined a day where i'd fear clouds
-   but after youre choked by apathetic winds you breathe with coution*
+     *i never imagined a day where i'd fear clouds
+     but after youre choked by apathetic winds you breathe with coution*
    
-each tower in knife represents a different aspect of the self one loses
-when there hope is misaligned with their soul due to tower dujeva's hue culture 
+      each tower in knife represents a different aspect of the self one loses
+      when there hope is misaligned with their soul due to tower dujeva's hue culture 
 
 ##### (umi's brother)'s peak
       an active volcano used by the consul to fuel the academy
