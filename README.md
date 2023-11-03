@@ -5,7 +5,7 @@ somethings of importance
 *link to index*
 *link to guide for collaborators*
 
-# 20231020 Release Notes
+# ---
 - dujeva the island.md
 - student body folder
   - student body.md
